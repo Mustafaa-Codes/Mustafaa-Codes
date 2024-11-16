@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mustafabukhari2005@gmail.com**
 
-- 📄 Know about my experiences [https://resumeofsyedmustafabukhari.tiiny.site/](https://resumeofsyedmustafabukhari.tiiny.site/)
+- 📄 Know about my experiences [https://syedmustafabukhari-cv.tiiny.site/](https://syedmustafabukhari-cv.tiiny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
